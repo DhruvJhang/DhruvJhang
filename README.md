@@ -1,5 +1,5 @@
 # 💫 About Me:
-UI UX Designer | Runner's Up @ Designathon 2023 |<br>Volunteer @Web3conf_india | Designer @ OGClub DAO | <br>UI UX Lead @ GDSC SRM RMP | Web3 Enthusiast | <br>Content Creator | Freelancer | Cohort Member at TPF PLG '23 👨‍🎓
+UI UX Designer | Runner's Up @ Designathon 2023 |<br>Volunteer @Web3conf_india | Designer @ OGClub DAO | <br>GDSC Lead @ GDSC SRM RMP | Web3 Enthusiast | <br>Content Creator | Freelancer | Cohort Member at TPF PLG '23 👨‍🎓
 
 
 ## 🌐 Socials:
